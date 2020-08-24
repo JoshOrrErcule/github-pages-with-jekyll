@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+On this blog we believe science is magic and all people deserve free cheese.
